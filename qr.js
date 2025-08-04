@@ -24,9 +24,9 @@ https://whatsapp.com/channel/0029VagJIAr3bbVBCpEkAM07
 
 
 *Yᴏᴜ-ᴛᴜʙᴇ ᴛᴜᴛᴏʀɪᴀʟꜱ* 🪄 
-https://youtube.com/GlobalTechInfo
+https://youtube.com/Officialhawardtv
 
-*ULTRA-MD--WHATTSAPP-BOT* 🥀
+*Queensley Md* 🥀
 `
 
 
